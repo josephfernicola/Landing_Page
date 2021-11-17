@@ -1,2 +1,2 @@
 # Landing_Page
-Image credit: eugene goloves, michael kanivets, dmitriy k, nikita nikitin from pexels.com
+Image credit: eugene golovesov, michael kanivetsky, dmitriy k, nikita nikitin, andrew jones from pexels.com
